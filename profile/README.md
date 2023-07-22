@@ -1,4 +1,4 @@
-# Welcome to Positive Intentions! 🚀✨
+# Welcome to positive-intentions! 🚀✨
 We are a research and development team, dedicated to pushing the boundaries of what's possible in the world of technology. 💻🌌 Our focus is on cutting-edge projects that explore new frontiers in various domains. 🚀
 
 At positive-intentions, we are passionate about creating breakthroughs, uncovering new possibilities, and ultimately benefiting the wider community. 🌍 Our work centers around cutting-edge projects that drive innovation and shape a brighter future. 🌟💪
